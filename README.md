@@ -1,5 +1,4 @@
 Boas vindas ao meu perfil 💙💙
-Meu nome é Boas vindas ao meu perfil 💙💙
 Meu nome é Victoria Larissa
 
 Estou estudando na Alura
